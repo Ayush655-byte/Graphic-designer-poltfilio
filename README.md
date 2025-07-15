@@ -1,1 +1,1 @@
-# Graphic-designer-poltfolio
+# Graphic-designer-portfolio
